@@ -1,0 +1,1 @@
+# zadatci-paolo-o-2.d
